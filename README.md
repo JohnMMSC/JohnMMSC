@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @johnallanmoody
+- 👋 Hi, I’m Johm Moody
 - 👀 I’m interested in collaborating..
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on multiple subjects and industries
-- 📫 How to reach me j.moody@pacificjointspacefacility.com.au...
+- 📫 How to 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: . i'm also a recording artist with several top 10 alternative hits..
 
